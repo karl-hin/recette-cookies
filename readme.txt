@@ -1,3 +1,0 @@
-Bonjour !
-
-Salut à tous
